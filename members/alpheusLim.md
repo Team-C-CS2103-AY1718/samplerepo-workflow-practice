@@ -1,4 +1,4 @@
-# John Doe
+# Alpheus Lim
 
 ## Education
 
